@@ -1,3 +1,3 @@
-2016XXX	Sheayun Lee
+2016XXX - Sheayun Lee
 
 Kookmin Univ. SW
